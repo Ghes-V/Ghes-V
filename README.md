@@ -1,0 +1,5 @@
+- 👋 Hi, I’m: V
+- 👀 I’m interested in: history
+- 🌱 I’m currently learning: latin
+- 💞️ I’m looking to collaborate on: "that"
+- 📫 How to reach me: you don't
